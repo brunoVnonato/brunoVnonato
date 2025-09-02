@@ -1,4 +1,4 @@
-## Hi there 👋
+## AI Engineer / ML Engineer out of Brasil  
 
 <!--
 **brunoVnonato/brunoVnonato** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
